@@ -1,6 +1,4 @@
-##
+##⠀   ⠀    ⠀   ⠀
 <!--
-<img width="875" height="83" alt="Image" src="https://github.com/user-attachments/assets/28faf769-ab0c-4f07-acb4-686c62a2f04a" />
- ⠀ ⠀  ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀  ⠀⠀  ⠀︶︶︶︶<img width="321" height="321" alt="Image" src="https://github.com/user-attachments/assets/40a96abe-972f-4eda-884d-76dab2f66b60" /> ︶︶︶︶
--    ⠀  ⠀   ⠀  ⠀   ⠀   ⠀  ⠀      ⠀  ⠀   ⠀  ⠀⠀    ⠀  ⠀   ⠀  ⠀ ⠀  ⠀𝗠𝗼𝗿𝗿𝗶   or   𝗥ii .
--    
+![Image](https://github.com/user-attachments/assets/01fda613-d980-46a3-8c83-4502942b8a07) ︶︶︶
+> Morri ノ Rii ノ Morriko or , any fictkin names !⠀   ⠀    ⠀⠀   ⠀   ⠀   ⠀    ⠀   ⠀ ⠀   ⠀   ⠀⠀   ⠀    ⠀   ⠀⠀ ⠀   ⠀    ⠀   ⠀   ⠀    ⠀   ⠀⠀⠀   ⠀    ⠀   ⠀ ⠀   ⠀    ⠀  Cudd only if friends ノ if weve interacted b4 ⌢⌢ if "Offtab ノ W2i ノ On menu" is indicated in names , please whisp
