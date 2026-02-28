@@ -4,7 +4,7 @@
 > - Mostly on Safe2 ⌢⌢ Sometimes on Safeviet or Safe1
 > - ASK to friend rq ⌢⌢ or if i send u one its mostly i wanna be friends....
 - Cudd only if friends ノ if weve interacted b4 ⌢⌢ Hidee freely !
-- Send whisps if "Offtab ノ W2i ノ On menu" is indicated in names because im mostly distracted by other stufss⠀⠀! ⠀ just keep inmind that i sometimes reps late or no reps at all
+- Send whisps if "Offtab ノ W2i ノ AFK or On menu" is indicated in names because im mostly distracted by other stufss⠀⠀! ⠀ just keep inmind that i sometimes reps late or no reps at all
 - Im bad with words and very anxious / nervous when interacting , please be patient thnks !!!!
 - I may seem rude / weird sometimes , please tell me if i make u umcomf ^__[
 ##
