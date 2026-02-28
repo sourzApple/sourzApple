@@ -9,4 +9,5 @@
 - Im bad with words . If i dont reps when in convos i just dont know whattosay so pls be patient with me......
 ##
 - Fandoms ⠀  :⠀  ⠀ BADthings , The moon i rot behind , Alan n Liam , Befriend the retroslop , ^_^ , =3 , MY GUILT WILL NOT PURIFY ME , My mouth is rotting , Pauls journey , Dexs party , Drawnout , Life purpose , cutegirl555 , ENIGMA , Late july midsummer , Frozen soul maybe , Jims computer , WHY IS LOVE? ,Beyond the shelf......
-- > Args : Seildirectory , Deivydoestutorial , IHASAFACELULZ , CDarchive , Itzskeet_play , Rockin4ward , Skatingrease , Brandonworks , Rochas313 , Decodedcollective , Odetoavessel , Roblozs anomalies , RecallaHollowheart , Aregect ?
+- > Args : Seildirectory , Deivydoestutorial , IHASAFACELULZ , CDarchive , Itzskeet_play , Rockin4ward , Skatingrease , Brandonworks , Rochas313 , Decodedcollective , Odetoavessel , Roblozs anomalies , RecallaHollowheart , Aregect , andreW2002....?
+##
