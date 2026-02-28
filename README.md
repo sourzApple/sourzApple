@@ -1,12 +1,12 @@
  ##
 ![Image](https://github.com/user-attachments/assets/01fda613-d980-46a3-8c83-4502942b8a07) ︶︶︶
-- Morri ノ Rii ノ Morriko or , any fictkin names !
+- Morri ノ Rii ノ Morriko or , any fictkin names  ⠀ ⠀!  ⠀ ⠀𝗘𝗻𝗴 or 𝗩𝗶𝗲𝘁
 > - Mostly on Safe2 ⌢⌢ Sometimes on Safeviet or Safe1
 > - ASK to friend rq ⌢⌢ or if i send u one its mostly i wanna be friends....
 - Cudd only if friends ノ if weve interacted b4 ⌢⌢ Hidee freely !
 - Send whisps if "Offtab ノ W2i ノ AFK or On menu" is indicated in names because im mostly distracted by other stufss⠀⠀! ⠀ just keep inmind that i sometimes reps late or no reps at all
 - Im bad with words and very anxious / nervous when interacting , please be patient thnks !!!!
-- I may seem rude / weird sometimes , please tell me if i make u umcomf ^__[
+- I may seem rude / weird sometimes , please tell me if i make u umcomf !!!
 ##
 - Fandoms ⠀  :
 > - BADthings , The moon i rot behind , Alan n Liam , Befriend the retroslop , ^_^ , =3 , MY GUILT WILL NOT PURIFY ME , My mouth is rotting , Pauls journey , Dexs party , Drawnout , Life purpose , cutegirl555 , ENIGMA , Late july midsummer , Frozen soul maybe , Jims computer , WHY IS LOVE? , Beyond the shelf , Kaleidoscope and somewhat Rblx myths....
