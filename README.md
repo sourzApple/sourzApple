@@ -9,7 +9,7 @@
 - I may seem rude / weird sometimes , please tell me if i make u umcomf !!!
 ##
 - Fandoms ⠀  :
-> - BADthings , The moon i rot behind , Alan n Liam , Befriend the retroslop , ^_^ , =3 , MY GUILT WILL NOT PURIFY ME , My mouth is rotting , Pauls journey , Dexs party , Drawnout , Life purpose , cutegirl555 , ENIGMA , Late july midsummer , Frozen soul maybe , Jims computer , WHY IS LOVE? , Beyond the shelf , Kaleidoscope and somewhat Rblx myths....
+> - BADthings , The moon i rot behind , Alan n Liam , Befriend the retroslop , ^_^ , =3 , MY GUILT WILL NOT PURIFY ME , My mouth is rotting , Pauls journey , Dexs party , Drawnout , Life purpose , cutegirl555 , ENIGMA , Late july midsummer , Frozen soul maybe , Jims computer , WHY IS LOVE? , Beyond the shelf , Kaleidoscope , Welcome to Happyville! and somewhat Rblx myths....
 > - Args : Seildirectory , Deivydoestutorial , IHASAFACELULZ , CDarchive , Itzskeet_play , Rockin4ward , Skatingrease , Brandonworks , Rochas313 , Decodedcollective , Odetoavessel , Roblozs anomalies , RecallaHollowheart , 4amanda4 , Aregect , andreW2002
 ##
 - Please DNI ⠀  :
