@@ -3,7 +3,6 @@
 - Morri ノ Rii or , any fictkin names  ⠀ ⠀!  ⠀ ⠀𝗘𝗻𝗴 or 𝗩𝗶𝗲𝘁
 > - Mostly on Safe2 ⌢⌢ Sometimes on Safeviet or Safe1
 > - ASK to friend rq , or if i send u one its mostly i wanna be friends....
-> - 4saken fandom ; Dw fandom iwc / dniufノuid
 - Cudd only if friends / if weve interacted b4 ⌢⌢ Hidee freely !
 - Send whisps if "Offtab / W2i / AFK or On menu" is indicated in names because im mostly distracted by other stufss⠀⠀! ⠀ just keep inmind that i sometimes reps late or no reps at all
 - Im bad with words and very anxious / nervous when interacting , please be patient thnks !!!!
@@ -13,6 +12,8 @@
 - Args  ⠀  : Seildirectory , Deivydoestutorial , IHASAFACELULZ , CDarchive , Itzskeet_play , Rockin4ward , Skatingrease , Brandonworks , Rochas313 , Decodedcollective , Odetoavessel , Roblozs anomalies , RecallaHollowheart , 4amanda4 , Aregect , andreW2002
 ##
 ![Image](https://github.com/user-attachments/assets/8b94e012-f1c7-478e-a9de-32a55a907ece) . Please DNI ⠀  :
-> - Antis / Pro ノ Darkshippers ; Racism , Sexism supporter .... basic dni
-> - 10- or 18+ ( unless were already friends )
+- all that basic dni
+> - Antis / Pro ノ Darkshippers ; Racism , Sexism supporter ....
+- 10- or 18+ ( unless were already friends )
+- 4saken fandom ; Dw fandom iwc / dniufノuid ⌢⌢ Kit / emojicat dni
 ##
