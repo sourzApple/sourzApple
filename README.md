@@ -5,8 +5,6 @@
 ## <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1a2ae4ec-5bf9-4fe9-bf77-cb9f66815b3d" /> Stuffs :; ^__^
 Morri . ri or Ivan / fkin names !  Badthimgs Ivan and Andrem kin hi ilove them ok they me irl ok,,, 
 ######
-I liek kaleidoscope Alot ok and u could tell
-######
 Interests ;: Rblx Myths / psychological games in general , uhhu Vocaloid an SynthV? , Args ,,,
 
 --------
